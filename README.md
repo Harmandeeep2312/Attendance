@@ -1,8 +1,6 @@
 # Attendance
-hey yo people
-hie
+AnuragPandey
 bhavya dubey
-
 <br>
 Yashvardhan Gautam 
 <br>
